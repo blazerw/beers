@@ -10,6 +10,7 @@
 * 2 tsp gypsum
 * 1 pkg Windsor dry ale yeast
 * 3/4 cup corn sugar for priming
+
 ## Directions
 1. In an 12 qt pot, steep the grains in a hop bag in 1 1/2 gallons of sterile water at 155 degrees for half an hour. Remove the grains.
 1. Add the 2 cans of the malt extract and the dried extract and bring to a boil.
